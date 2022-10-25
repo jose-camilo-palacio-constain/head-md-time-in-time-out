@@ -1,1 +1,1 @@
-This is the process folder
+This is the process folder describing my progress throughout the semester
