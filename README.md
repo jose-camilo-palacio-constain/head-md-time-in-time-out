@@ -87,7 +87,7 @@ One of the very significant elements of the molas is their DUALITY (they are mad
 ---------------------------------------------------------------------------------------------------------------------------
 
 
-**Metronome:**device that produces a regular repeated sound like a clock, to help musicians play music at a particular speed.
+**Metronome:** device that produces a regular repeated sound like a clock, to help musicians play music at a particular speed.
 
 
 
