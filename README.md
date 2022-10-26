@@ -90,4 +90,8 @@ One of the very significant elements of the molas is their DUALITY (they are mad
 **Metronome:** device that produces a regular repeated sound like a clock, to help musicians play music at a particular speed.
 
 
+---------------------------------------------------------------------------------------------------------------------------
+
+**Sleep paralysis:** happens when you cannot move your muscles as you are waking up or falling asleep. This is because you are in sleep mode but your brain is active. It's not clear why sleep paralysis can happen but it has been linked with: insomnia.
+
 
