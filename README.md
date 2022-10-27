@@ -1,6 +1,35 @@
 #what is this?
 This is the process folder describing my progress throughout the semester
 
+
+**SHAPES OF TIME**
+---------------------------------------------------------------------------------------------------------------------------
+
+**PITCH TITLE**
+
+**SHAPES OF TIME / FORMAS DEL TIEMPO** 
+
+**KEY INSIGHT**
+
+The key insight of this research is focused on analyzing and representing through objects some non-linear forms of time. To carry out this project, three non-linear geometric representations of time immersed in the cosmogony or ways of interpreting the reality of the Amerindian cultures that inhabited the American continent were considered: Cyclic time, spiral time, and labyrinths.
+
+![SHAPES OF TIME_Mesa de trabajo 1](https://user-images.githubusercontent.com/116269310/198290718-76be7888-d63c-4c8a-b063-f6b056861686.jpg)
+
+
+
+---------------------------------------------------------------------------------------------------------------------------
+
+![WhatsApp Image 2022-10-27 at 11 54 34 AM (1)](https://user-images.githubusercontent.com/116269310/198289781-1bdb4879-4667-41d4-a574-a806fc037126.jpeg)
+
+![WhatsApp Image 2022-10-27 at 11 54 34 AM](https://user-images.githubusercontent.com/116269310/198289831-d9f47410-61ae-42e1-bdda-f5521f13a962.jpeg)
+
+![WhatsApp Image 2022-10-27 at 11 54 35 AM](https://user-images.githubusercontent.com/116269310/198289866-6c5d50be-9f07-465d-b519-1134bb55e8c3.jpeg)
+
+![WhatsApp Image 2022-10-27 at 11 54 35 AM (1)](https://user-images.githubusercontent.com/116269310/198290096-d800a0d5-d663-4fe5-90e0-68c739652576.jpeg)
+
+![WhatsApp Image 2022-10-27 at 11 54 36 AM](https://user-images.githubusercontent.com/116269310/198290139-9e1abbd8-7224-4a19-a702-dba9aa7ae74f.jpeg)
+
+
 ---------------------------------------------------------------------------------------------------------------------------
 
 **KEY WORDS:**
