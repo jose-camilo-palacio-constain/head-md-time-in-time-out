@@ -6,6 +6,23 @@
 
 This is the process folder describing my progress throughout the semester
 
+## Investigation progress (3/11/2022) 
+
+## SHAPES OF TIME / STRUCTURE:
+
+- I am in the countryside in the middle of the night and a light appears on the horizon, it is like a flame dancing in the wind, it is a guaca! I have decided to look for it and find the treasure hidden in it!
+
+- Please draw the route you would take to get to the guaca thinking about time in a cyclical, spiral or labyrinth form.
+
+## RESULTS OF THE SURVEY:
+
+SHAPES OF TIME SURVEY 01.jpg
+
+
+
+
+---------------------------------------------------------------------------------------------------------------------------
+
 ## Investigation progress (2/11/2022) 
 
 ## PERCEPTION ABOUT THE CONCEPTS: 
@@ -25,11 +42,9 @@ Between 30- and 5-minutes seconds per survey.
 ## QUESTIONS:
 How would you draw or represent these nonlinear forms of representation about time: cyclic time, spiral time, and time represented through mazes?
 
-## SHAPES OF TIME / STRUCTURE:
+Connect the stories about the guacas with the three forms of non-linear representation of time. Tell a story: I am in the field, and a light appears on the horizon, it is like a flame dancing in the wind, then I decide to follow it hoping to find the treasure. Please draw the field using spirals. Draw the path you can take..., draw the shape of the light using ..., tell the story and then draw it.
 
-- I am in the countryside in the middle of the night and a light appears on the horizon, it is like a flame dancing in the wind, it is a guaca! I have decided to look for it and find the treasure hidden in it!
-
-- Please draw the route you would take to get to the guaca thinking about time in a cyclical, spiral or labyrinth form.
+Spiral mazes.
 
 
 ---------------------------------------------------------------------------------------------------------------------------
