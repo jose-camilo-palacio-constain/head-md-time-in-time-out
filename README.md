@@ -2,30 +2,30 @@
 
 
 
-## SHAPES OF TIME 
+# SHAPES OF TIME 
 
 This is the process folder describing my progress throughout the semester
 
-# Investigation progress (2/11/2022) 
+## Investigation progress (2/11/2022) 
 
-# PERCEPTION ABOUT THE CONCEPTS: 
+## PERCEPTION ABOUT THE CONCEPTS: 
 
 Looking for the union of concepts, I propose to develop Amerindian labyrinths in which the theme of "guacas or huacas" is worked on.
 
-# PROPOSED ACTIVITY: 
+## PROPOSED ACTIVITY: 
 It would be very interesting for people to draw some of the non-linear representations of time that have been chosen. Alexia recommends doing about 20 surveys in which people express their ideas through drawings.
 
-# SURVEY DURATION: 
+## SURVEY DURATION: 
 Between 30- and 5-minutes seconds per survey.
 
-# STRUCTURE:
+## STRUCTURE:
 1. Write the question.
 2. Post a graph or diagram.
 
-# QUESTIONS:
+## QUESTIONS:
 How would you draw or represent these nonlinear forms of representation about time: cyclic time, spiral time, and time represented through mazes?
 
-# SHAPES OF TIME / STRUCTURE:
+## SHAPES OF TIME / STRUCTURE:
 
 - I am in the countryside in the middle of the night and a light appears on the horizon, it is like a flame dancing in the wind, it is a guaca! I have decided to look for it and find the treasure hidden in it!
 
