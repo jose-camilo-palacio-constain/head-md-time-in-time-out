@@ -16,8 +16,16 @@ This is the process folder describing my progress throughout the semester
 
 ## RESULTS OF THE SURVEY:
 
-SHAPES OF TIME SURVEY 01.jpg
-
+![SHAPES OF TIME SURVEY 01](https://user-images.githubusercontent.com/116269310/199702744-94114542-6618-40b4-9151-7caa18af3682.jpg)
+![SHAPES OF TIME SURVEY 02](https://user-images.githubusercontent.com/116269310/199702773-e0e7b72d-c6e6-4e4d-9672-a8d140d81a67.jpg)
+![SHAPES OF TIME SURVEY 03](https://user-images.githubusercontent.com/116269310/199702807-d2b3c791-f508-492f-9ea5-3511d911b218.jpg)
+![SHAPES OF TIME SURVEY 04](https://user-images.githubusercontent.com/116269310/199702838-5db554dd-63d0-46b4-8d1d-29c84851bae0.jpg)
+![SHAPES OF TIME SURVEY 05](https://user-images.githubusercontent.com/116269310/199702870-e2cc262f-377a-4375-a838-1877825b1680.jpg)
+![SHAPES OF TIME SURVEY 06](https://user-images.githubusercontent.com/116269310/199702908-00ca1323-959c-4950-8037-e6e6400aa039.jpg)
+![SHAPES OF TIME SURVEY 07](https://user-images.githubusercontent.com/116269310/199702944-ddae3a02-0427-4747-8ff4-308cc10e6f05.jpg)
+![SHAPES OF TIME SURVEY 08](https://user-images.githubusercontent.com/116269310/199702970-6834a859-dd5a-4248-8a55-38f3931b45a2.jpg)
+![SHAPES OF TIME SURVEY 09](https://user-images.githubusercontent.com/116269310/199703017-87159b57-3d38-4a31-b15d-384eb287d957.jpg)
+![SHAPES OF TIME SURVEY 10](https://user-images.githubusercontent.com/116269310/199703052-a5e64433-ec6e-489f-ad28-29900bb41661.jpg)
 
 
 
@@ -28,6 +36,11 @@ SHAPES OF TIME SURVEY 01.jpg
 ## PERCEPTION ABOUT THE CONCEPTS: 
 
 Looking for the union of concepts, I propose to develop Amerindian labyrinths in which the theme of "guacas or huacas" is worked on.
+
+![SHAPES OF TIME 01](https://user-images.githubusercontent.com/116269310/199702102-b8117a73-b76a-4a88-b28f-5e25c9cc84d1.jpg)
+![SHAPES OF TIME 02](https://user-images.githubusercontent.com/116269310/199702130-fd1ca303-8bfe-4e50-9af1-6c067ee3272d.jpg)
+
+
 
 ## PROPOSED ACTIVITY: 
 It would be very interesting for people to draw some of the non-linear representations of time that have been chosen. Alexia recommends doing about 20 surveys in which people express their ideas through drawings.
