@@ -1,20 +1,35 @@
 #what is this?
+
+
+
+## SHAPES OF TIME 
+
 This is the process folder describing my progress throughout the semester
 
+# Investigation progress (2/11/2022) 
 
-**SHAPES OF TIME**
----------------------------------------------------------------------------------------------------------------------------
+# PERCEPTION ABOUT THE CONCEPTS: 
 
-**PITCH TITLE**
+Looking for the union of concepts, I propose to develop Amerindian labyrinths in which the theme of "guacas or huacas" is worked on.
 
-**SHAPES OF TIME / FORMAS DEL TIEMPO** 
+# PROPOSED ACTIVITY: 
+It would be very interesting for people to draw some of the non-linear representations of time that have been chosen. Alexia recommends doing about 20 surveys in which people express their ideas through drawings.
 
-**KEY INSIGHT**
+# SURVEY DURATION: 
+Between 30- and 5-minutes seconds per survey.
 
-The key insight of this research is focused on analyzing and representing through objects some non-linear forms of time. To carry out this project, three non-linear geometric representations of time immersed in the cosmogony or ways of interpreting the reality of the Amerindian cultures that inhabited the American continent were considered: Cyclic time, spiral time, and labyrinths.
+# STRUCTURE:
+1. Write the question.
+2. Post a graph or diagram.
 
-![SHAPES OF TIME_Mesa de trabajo 1](https://user-images.githubusercontent.com/116269310/198290718-76be7888-d63c-4c8a-b063-f6b056861686.jpg)
+# QUESTIONS:
+How would you draw or represent these nonlinear forms of representation about time: cyclic time, spiral time, and time represented through mazes?
 
+# SHAPES OF TIME / STRUCTURE:
+
+- I am in the countryside in the middle of the night and a light appears on the horizon, it is like a flame dancing in the wind, it is a guaca! I have decided to look for it and find the treasure hidden in it!
+
+- Please draw the route you would take to get to the guaca thinking about time in a cyclical, spiral or labyrinth form.
 
 
 ---------------------------------------------------------------------------------------------------------------------------
