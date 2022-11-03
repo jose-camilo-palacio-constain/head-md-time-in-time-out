@@ -29,6 +29,11 @@ SHAPES OF TIME SURVEY 01.jpg
 
 Looking for the union of concepts, I propose to develop Amerindian labyrinths in which the theme of "guacas or huacas" is worked on.
 
+![SHAPES OF TIME 01](https://user-images.githubusercontent.com/116269310/199702102-b8117a73-b76a-4a88-b28f-5e25c9cc84d1.jpg)
+![SHAPES OF TIME 02](https://user-images.githubusercontent.com/116269310/199702130-fd1ca303-8bfe-4e50-9af1-6c067ee3272d.jpg)
+
+
+
 ## PROPOSED ACTIVITY: 
 It would be very interesting for people to draw some of the non-linear representations of time that have been chosen. Alexia recommends doing about 20 surveys in which people express their ideas through drawings.
 
