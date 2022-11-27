@@ -5,6 +5,10 @@
 
 This is the process folder describing my progress throughout the semester
 
+## Investigation progress (28/11/2022) 
+
+
+
 ## Investigation progress (3/11/2022) 
 
 ## SHAPES OF TIME / STRUCTURE:
