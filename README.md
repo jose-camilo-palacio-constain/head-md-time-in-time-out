@@ -5,37 +5,6 @@
 
 This is the process folder describing my progress throughout the semester
 
-## Investigation progress (2/11/2022) 
-
-## PERCEPTION ABOUT THE CONCEPTS: 
-
-Looking for the union of concepts, I propose to develop Amerindian labyrinths in which the theme of "guacas or huacas" is worked on.
-
-![SHAPES OF TIME 01](https://user-images.githubusercontent.com/116269310/199702102-b8117a73-b76a-4a88-b28f-5e25c9cc84d1.jpg)
-![SHAPES OF TIME 02](https://user-images.githubusercontent.com/116269310/199702130-fd1ca303-8bfe-4e50-9af1-6c067ee3272d.jpg)
-
-
-
-## PROPOSED ACTIVITY: 
-It would be very interesting for people to draw some of the non-linear representations of time that have been chosen. Alexia recommends doing about 20 surveys in which people express their ideas through drawings.
-
-## SURVEY DURATION: 
-Between 30- and 5-minutes seconds per survey.
-
-## STRUCTURE:
-1. Write the question.
-2. Post a graph or diagram.
-
-## QUESTIONS:
-How would you draw or represent these nonlinear forms of representation about time: cyclic time, spiral time, and time represented through mazes?
-
-Connect the stories about the guacas with the three forms of non-linear representation of time. Tell a story: I am in the field, and a light appears on the horizon, it is like a flame dancing in the wind, then I decide to follow it hoping to find the treasure. Please draw the field using spirals. Draw the path you can take..., draw the shape of the light using ..., tell the story and then draw it.
-
-Spiral mazes.
-
-
----------------------------------------------------------------------------------------------------------------------------
-
 ![WhatsApp Image 2022-10-27 at 11 54 34 AM (1)](https://user-images.githubusercontent.com/116269310/198289781-1bdb4879-4667-41d4-a574-a806fc037126.jpeg)
 
 ![WhatsApp Image 2022-10-27 at 11 54 34 AM](https://user-images.githubusercontent.com/116269310/198289831-d9f47410-61ae-42e1-bdda-f5521f13a962.jpeg)
