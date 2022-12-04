@@ -5,18 +5,6 @@
 
 This is the process folder describing my progress throughout the semester
 
-## Investigation progress (28/11/2022) 
-
-## PITCH TITLE
-LA GUACA / SHAPES OF TIME 
-
-## KEY INSIGHT 03 
-
-The key idea of this narrative is based on the story of a farmer who begins a journey through parallel worlds or multiverses in search of the treasure hidden in a "Guaca". These worlds are governed by supernatural Amerindian energies that control time in different ways (cyclical, spiral and labyrinth forms).
-
-As the character advances and approaches the treasure hidden by the Guaca, he is immersed in a looping journey that irremediably transports him to a new world or scenario that takes him to initial or intermediate stages of his journey, preventing him from reaching his goal, in a "never-ending" quest.
-
----------------------------------------------------------------------------------------------------------------------------
 
 ## Investigation progress (3/11/2022) 
 
