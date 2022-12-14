@@ -5,6 +5,11 @@
 ## (Prototype)
 
 ![IMG-0447](https://user-images.githubusercontent.com/116269310/207050879-e64d284c-e215-42d3-848c-46e189e637ad.jpg)
+![PROTOTYPE RECORD 08](https://user-images.githubusercontent.com/116269310/207646499-3d12599b-d6e2-4515-a4f3-1bd24e890867.jpg)
+![PROTOTYPE RECORD 06](https://user-images.githubusercontent.com/116269310/207646586-fbf7110c-98c2-4e01-9df3-42903857f8a2.jpg)
+![PROTOTYPE RECORD 07](https://user-images.githubusercontent.com/116269310/207646628-cd319f3c-eba9-4337-bc1e-2b3c4eb5b15d.jpg)
+![PROTOTYPE RECORD 09](https://user-images.githubusercontent.com/116269310/207646675-76500a4b-7f9f-49d0-b380-f38cd6712646.jpg)
+
 
 
 Based on your narratives, start materializing your object.
