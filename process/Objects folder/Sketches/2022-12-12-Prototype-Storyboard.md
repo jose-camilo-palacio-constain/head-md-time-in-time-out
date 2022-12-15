@@ -1,3 +1,5 @@
 # PROTOTYPE STORYBOARD
 ## (2022-12-12)
 
+![PROTOTYPE STORYBOARD V2](https://user-images.githubusercontent.com/116269310/207816540-0e63b381-c526-43c7-bbc5-bc1275d868b3.jpg)
+
