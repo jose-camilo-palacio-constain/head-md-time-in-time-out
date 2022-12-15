@@ -1,2 +1,4 @@
 # AMERINDIAN PATTERNS / MOODBOARD
 ## (2022-12-08)
+
+![MOODBOARD AMERINDIANS PATTERNS](https://user-images.githubusercontent.com/116269310/207814099-88b3fc89-9e65-4bce-8083-5006bffb6ff3.jpg)
